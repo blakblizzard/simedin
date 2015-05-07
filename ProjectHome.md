@@ -1,0 +1,1 @@
+Mercando electrónico donde cada participante puede enviar y recibir ofertas
